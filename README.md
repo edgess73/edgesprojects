@@ -2,7 +2,7 @@
 
 # Discord (RU)
 
-/dev/ass Edges remix: https://discord.gg/mnyhNv5Wus
+Soon!
 
 # Discord (EN)
 
